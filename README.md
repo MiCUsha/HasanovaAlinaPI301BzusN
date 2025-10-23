@@ -1,1 +1,1 @@
-No code No pain, Alinka MAlinka
+No code No pain
